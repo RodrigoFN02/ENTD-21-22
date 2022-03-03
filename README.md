@@ -1,3 +1,2 @@
 # ENTD-21-22
-Proyecto de ejemplo
-PENE
+Mnadame foto polla
